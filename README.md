@@ -1,1 +1,1 @@
-https://cdn.discordapp.com/attachments/1310264549110186004/1310280275221151814/Capture_decran_2024-11-23_174802.png?ex=6749eb19&is=67489999&hm=ef940c0ad06b1ac57f0a191b67ba5cff30229b089bb296def902e85acb0c4bed&
+![Capture_decran_2024-11-23_174802](https://github.com/user-attachments/assets/e337550b-908f-4b73-9676-88b14a318dc2)
